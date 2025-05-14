@@ -20,3 +20,4 @@ Dissatisfied customers are not more likely to return products.
 1. Use a high social media influence.
 2. Social media should focus more on the age group that is below 36 since they purchase the most.
 3. Discounts should be given more to middle-income earners since they use them more than high-income earners.
+4. The company should concentrate on promoting groceries since groceries have the lowest return rate.
